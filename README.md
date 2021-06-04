@@ -11,3 +11,5 @@
 ![hapus](https://i.ibb.co/VmL2nLH/sebelom-hapus.jpg)
 ## HASIL HAPUS
 ![setelah](https://i.ibb.co/ypjg3PF/setelah-hapus.jpg)
+## SOAL NOMOR 2
+![no2](https://i.ibb.co/RpGdscG/no2g.png)
